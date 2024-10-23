@@ -10,6 +10,7 @@ This repository is dedicated to keeping my workouts organized, up-to-date, and e
 - [Calcium Magnesium Zinc](https://www.amazon.de/dp/B08TCG2RH7?ref=ppx_yo2ov_dt_b_fed_asin_title)
 - [Protein](https://www.musclehouse.dk/products/functional-nutrition-whey-100-1000g?variant=42150542868733&gad_source=1&gclid=Cj0KCQjwveK4BhD4ARIsAKy6pMIgoJrYGfkZ6r-PfSUCnX3_sgFMqjTyvuozc1wrvyF25srLHBPKi_0aAmAuEALw_wcB)
 - [Creatine](https://www.musclehouse.dk/products/functional-nutrition-creatine-monohydrate-300g?variant=42951851802877&gad_source=1&gclid=Cj0KCQjwveK4BhD4ARIsAKy6pMLBjADWTjO0wFk5EgegMQFX8X4sYhhC69rwymDON6eX28Y7__Ot1lcaApxkEALw_wcB)
+- [Pre-workout Shot](https://www.musclehouse.dk/products/nutramino-pre-workout-shot-orange-60ml?ref=isp_rel_prd&isp_ref_pos=2) – This product can give a noticeable energy boost and improve workout performance, but I personally don’t recommend it if you're working out later in the day or evening. The high caffeine content can make it difficult to relax and fall asleep afterward. While there aren't definitive health concerns linked to these boosters, the caffeine can interfere with sleep. If you do choose to use it, it's best to take it in the early morning.
 
 ## Gear
 
